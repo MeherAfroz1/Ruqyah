@@ -174,6 +174,13 @@ A comprehensive, step-by-step guide to performing authentic Ruqyah (spiritual he
 - **Ibn Al-Qayyim's** *Zaad Al-Ma'ad*
 
 ---
+## 🎧 Ruqyah Audio Resources
+
+Listen to authentic Ruqyah recitations for healing and protection:
+
+[**📁 Access Ruqyah Audio Files**](https://drive.google.com/drive/folders/1jf5oMFX4_uuNPylIDpu_-Pu1yL3KZusP?usp=sharing)
+
+*Recommended for daily listening, during sleep, or while performing Ruqyah treatment.*
 
 ## 🤝 Contributing
 
